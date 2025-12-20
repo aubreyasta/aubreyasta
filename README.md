@@ -5,4 +5,4 @@
 - 👾 Loves Cyberpunk 2077, Fallout, & Star Wars, would love to hang out on these interests!
 
 **Other Stuff I'm Involved In**
-[![Bekana]("C:\Users\aubreyasta\Downloads\1-removebg-preview.png")](https://www.instagram.com/bekana.id/)
+[![Bekana](https://drive.google.com/file/d/10skzlt9rjGCTCgtuTeWxPVbO84VO6Aq7/view?usp=sharing)](https://www.instagram.com/bekana.id/)
