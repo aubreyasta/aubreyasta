@@ -1,6 +1,6 @@
 ## I'm Aubrey 👋🏻 A Data Science student @ UCSD
 
-- 💻 Currently working on [Daniel Caesar Lyrics Finder](https://github.com/aubreyasta/spotify_lyrics_seeker)
+- 💻 Currently on Summer Break
 - 🛠️ Doing UI/UX, Web Development, Data Analytics, and fun python-based projects
 - 👾 Loves Cyberpunk 2077, Fallout, & Star Wars, would love to hang out on these interests!
 
