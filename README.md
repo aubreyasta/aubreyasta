@@ -6,4 +6,5 @@
 - 🧰 Python, JavaScript, React + FastAPI, Figma for UI/UX
 
 **Other Stuff I'm Involved In**
-[![Bekana](raw.githubusercontent.com/aubreyasta/aubreyasta/main/1-removebg-preview.png)](https://www.instagram.com/bekana.id/)
+- [Bekana](https://www.instagram.com/bekana.id/)
+- [InnOcean](https://www.instagram.com/p/DSbkkryk9zf/?hl=en)
