@@ -7,4 +7,3 @@
 
 **Other Stuff I'm Involved In**
 - [Bekana](https://www.instagram.com/bekana.id/)
-- [InnOcean](https://www.instagram.com/p/DSbkkryk9zf/?hl=en)
